@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Saeid
+- 👀 A smart boy
+- 🌱 Loves flowers and plants and greenery
+- ❤️ My first and last love is mobile programming
+- 🧠 I focus on my work and enjoy my work
+- 📱 His favorite field is Android programming
